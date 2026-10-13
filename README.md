@@ -1,0 +1,2 @@
+# premium-shoji-screen-001-shoji-screen-japanese-joiner
+Struggling to build a shoji screen that doesn't wobble or look like a cheap imitation? The secret isn't the paper—it's the joinery.  This workshop reveals the traditional Japanese joinery techniques that make shoji screens both strong and elegant. You'll learn how to cut precise mortise-and-tenon joints, create kumiko patterns, and assemble a frame
